@@ -107,7 +107,7 @@ Data-Jobs-PowerBI/
 
 ## 🤝 Connect With Me
 
-**LinkedIn:** https://www.linkedin.com/in/YourLinkedIn
+**LinkedIn:** https://www.linkedin.com/in/mumba-mumba-393a2737a/S
 
 **GitHub:** https://github.com/MumbaMumba789
 
